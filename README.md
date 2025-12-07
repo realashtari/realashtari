@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **nikaashtar@gmail.com**
 
-- ⚡ Fun fact **The boss baby movie is underrated**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
